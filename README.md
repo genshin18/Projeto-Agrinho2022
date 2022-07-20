@@ -1,2 +1,1 @@
-# Projeto-Agrinho2022
-Para o projeto agrinho 2022, seria importante ter aulas de administração, juntamente com um professor qualificado para essa tarefa. Os estudantes teriam mais aprendizado e também sairiam da escola com certa preparação para o mercado de trabalho. As aulas podem ser praticadas ao menos duas vezes por semana, ou, ter uma turma exclusiva para este assunto. 
+ 
